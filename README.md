@@ -1,7 +1,7 @@
 - 👋 Hi, This is venkat
 
 
-     **Welcome to my place**
+     **Thanks for visiting my profile, Happy to see you here**
 
 <!---
 venkatt05/venkatt05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
