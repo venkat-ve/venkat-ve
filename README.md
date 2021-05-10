@@ -4,8 +4,6 @@ Look who's here :smiley:, Appreciate your click on my Id 😅, Happy to see you 
 
 👨‍💻 - [Jr. SE, FULL Creative](https://full.io/)
 
-📍 - [Chennai](https://en.wikipedia.org/wiki/Chennai)
-
 📬 - [Say Hi!](mailto:vxkat.360@gmailcom)
 
 🌐 - https://venkatt05.github.io/
