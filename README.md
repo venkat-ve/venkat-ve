@@ -1,7 +1,14 @@
-# Hi 👋, This is venkat 
+# Hi 👋, This is venkat !
 
+Look who's here :smiley:, Appreciate your click on my Id 😅, Happy to see you here :octocat: !
 
-Look who's here :smiley:, Thanks for visiting my profile, Happy to see you here
+👨‍💻 - [Jr. SE, FULL Creative](https://full.io/)
+
+📍 - [Chennai](https://en.wikipedia.org/wiki/Chennai)
+
+📬 - [Say Hi!](mailto:vxkat.360@gmailcom)
+
+🌐 - https://venkatt05.github.io/
 
 <!---
 venkatt05/venkatt05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
