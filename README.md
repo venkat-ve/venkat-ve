@@ -2,7 +2,7 @@
 
 Look who's here :smiley:, Appreciate your click on my Id 😅, Happy to see you here :octocat: !
 
-👨‍💻 - [Jr. SE, FULL Creative](https://full.io/)
+🚀 - [Jr. SE, FULL Creative](https://full.io/)
 
 📬 - [Say Hi!](mailto:vxkat.360@gmailcom)
 
