@@ -1,6 +1,6 @@
 # Heya 👋🏼, This is venkat !
 
-Look who's here :smiley:, Appreciate your click on my Id 😅, Happy to see you here :octocat: !
+Look who's here :smiley:, Happy to see you here :octocat: !
 
 🚀 - [Jr. SE, FULL Creative](https://full.io/)
 
