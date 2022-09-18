@@ -2,9 +2,9 @@
 
 Look who's here :smiley:, Happy to see you here :octocat: !
 
-🚀 - [Jr. SE, FULL Creative](https://full.io/)
+🚀 - [Software Engineer, Anthology](https://www.anthology.com/)
 
-📬 - [Say Hi!](mailto:vxkat.360@gmailcom)
+📬 - [Say Hi!](mailto:venkatesh.velan5@gmailcom)
 
 🌐 - https://venkat-x.netlify.app/ (Under Dev)
 
