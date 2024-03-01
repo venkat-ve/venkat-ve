@@ -1,6 +1,4 @@
-# Heya 👋🏼, This is venkat !
-
-Look who's here :smiley:, Happy to see you here :octocat: !
+# Heya 👋🏼, This is venkat :octocat: !
 
 🚀 - [Software Engineer, Anthology](https://www.anthology.com/)
 
