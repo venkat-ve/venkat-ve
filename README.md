@@ -1,7 +1,3 @@
-# Heya 👋🏼, This is venkat :octocat: !
-
-🚀 - [Software Engineer, Anthology](https://www.anthology.com/)
-
 📬 - [Say Hi!](mailto:venkatesh.velan5@gmailcom)
 
 🌐 - https://venkat-x.netlify.app/ (Under Dev)
